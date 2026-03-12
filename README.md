@@ -1,0 +1,1 @@
+Díky studijním a životním zkušenostem v Jižní Koreji se přirozeně pohybuji v mezinárodním prostředí, kde je klíčová jasná komunikace, spolupráce napříč kulturami a orientace na kvalitní technická řešení. Do projektů se snažím přinášet styl vedení založený na porozumění technologiím, respektu k týmu a důrazu na reálný dopad výsledného produktu.
